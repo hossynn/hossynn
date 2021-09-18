@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hossynn
-- 👀 I’m interested in CRYPTO
+- 👀 I’m interested in CRYPTO #BTC
 - 🌱 I’m currently learning MUCH more about crypto
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me tw id: @hossyn369
